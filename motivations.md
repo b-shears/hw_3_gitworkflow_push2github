@@ -1,0 +1,1 @@
+I am beyond tired of wearing every hat in the company, and being shown minimal appreciation for it. From the salesman to the accountant, to the design engineer, to construction worker hanging 4" pipe on 30 ft ceilings later today. Out of all of the hats, manual labor what I am most excited to be moving on from. There are better opportunities out there if you strive for them.
